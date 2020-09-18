@@ -2,7 +2,7 @@
 
 ## EN
 
-### Andrey Chssovskikh
+### Andrey Chsovskikh
 
 **Connect with me**:
 Discord: xyRks#5183 Telegram: https://t.me/xyRks
